@@ -1,0 +1,2 @@
+# Updates-CIMA-E1-Managing-Finance-in-a-Digital-World-Exam-Guide
+The CIMA E1 (Managing Finance in a Digital World) exam focuses on developing a strong understanding of management accounting, financial strategy, and the role of finance in business decision-making. It covers topics such as financial analysis, performance measurement, budgeting, and the impact of technology on finance.
